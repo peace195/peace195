@@ -1,6 +1,4 @@
-### Hi 👋
-
-- 📫 How to reach me:[peace195.github.io/resume.pdf](https://peace195.github.io/resume.pdf)
+- 👋 How to reach me:[peace195.github.io/resume.pdf](https://peace195.github.io/resume.pdf)
 
 [![Peace195's github stats](https://github-readme-stats.vercel.app/api?username=peace195&show_icons=true&hide=["contribs","prs"])](https://github.com/peace195)
 
