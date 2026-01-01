@@ -17,3 +17,15 @@
 - ✅ 다낭: [다낭 출장 마사지 – 글로우](https://glowvietnam.com/kr/home-massage-da-nang)
 - ✅ 박닌: [박닌 출장 마사지 – 글로우](https://glowvietnam.com/kr/massage-tai-nha-bac-ninh)
 - ✅ 나트랑: [나트랑 출장 마사지 – 글로우](https://glowvietnam.com/kr/massage-tai-nha-nha-trang-khanh-hoa)
+
+In 2026, we expand our Glow app to Philippines:
+- 👯 Manila: [Home massage service Manila](https://glowphilippines.com/en/massage-at-home)
+- 🤔 Cebu: [Home massage service Cebu](https://glowphilippines.com/en/massage-at-home-cebu)
+- 💬 Davao: [Home massage service Davao](https://glowphilippines.com/en/massage-at-home-davao-del-sur)
+- 📫 Boracay: [Home massage service Boracay](https://glowphilippines.com/en/massage-at-home-aklan)
+- ✅ Metro Manila: [Home massage service Metro Manila](https://glowphilippines.com/en/massage-at-home-metro-manila)
+- ✅ Pampanga: [Dịch vụ massage tại nhà Pampanga](https://glowphilippines.com/vi/massage-at-home-pampanga)
+- ✅ Cavite: [Dịch vụ massage tại nhà Cavite](https://glowphilippines.com/vi/massage-at-home-cavite)
+- ✅ Laguna: [Dịch vụ massage tại nhà Laguna](https://glowphilippines.com/vi/massage-at-home-laguna)
+- ✅ Cebu: [세부 출장 마사지 – 글로우](https://glowphilippines.com/kr/massage-at-home-cebu)
+- ✅ Boracay: [보라카이 출장 마사지 – 글로우](https://glowphilippines.com/kr/massage-at-home-aklan)
