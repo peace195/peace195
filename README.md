@@ -1,6 +1,3 @@
-
-[![Peace195's github stats](https://github-readme-stats.vercel.app/api?username=peace195&show_icons=true&hide=["contribs","prs"])](https://github.com/peace195)
-
 - 🔭 I’m currently working as CEO of a tech startup Glow - App booking massage at home 24/7 
 - 🌱 Glow scales up to 10 cities in Vietnam. Check it out:
 - 👯 Ha Noi: [Home massage service Hanoi](https://glowvietnam.com/en/home-massage-hanoi)
